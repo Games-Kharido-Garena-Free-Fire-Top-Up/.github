@@ -1,3 +1,5 @@
+<meta name="google-site-verification" content="FvnrQmRWTQR4bWMsUP-6RxbxzTgcE5ygI2hYqpDcm90" />
+
 # How to Buy Diamonds in Games Kharido Garena Free Fire - Top-Up Centre Guide
 
 If you're looking to purchase in-game currency for **Games Kharido Garena Free Fire**, known as **Game Kharido Diamonds**, through a **Top-Up Centre**, follow the steps below to get started.
