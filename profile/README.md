@@ -2,6 +2,9 @@
 
 If you're looking to purchase in-game currency for **Games Kharido Garena Free Fire**, known as **Game Kharido Diamonds**, through a **Top-Up Centre**, follow the steps below to get started.
 
+ - ## 👉 [Click Here](https://orange.great-site.net/)
+  - ## 👉 [Buy Now](https://orange.great-site.net/)
+
 ## 1. Visit the Top-Up Centre
 Garena Free Fire provides official top-up centres or partner websites for purchasing Diamonds. Some of the most common ways to do so include:
 
@@ -23,6 +26,9 @@ Once you've selected the number of Diamonds, you can choose from a variety of pa
 
 ## 4. Complete the Payment
 After confirming your purchase, proceed to complete the payment. Once the payment is successful, the Diamonds will be credited to your account.
+
+ - ## 👉 [Click Here](https://orange.great-site.net/)
+  - ## 👉 [Buy Now](https://orange.great-site.net/)
 
 ## 5. Use the Diamonds
 Now that your Diamonds have been added to your Free Fire account, you can use them to purchase skins, characters, passes, and other in-game items.
