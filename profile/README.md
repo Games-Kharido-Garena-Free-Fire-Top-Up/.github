@@ -9,8 +9,8 @@ Garena Free Fire provides official top-up centres or partner websites for purcha
 - **App Store** (for iOS users)
 - **Google Play Store** (for Android users)
 - **Third-party top-up websites** such as:
-  - ## [Click Here](https://orange.great-site.net/)
-  - ## [Buy Now](https://orange.great-site.net/)
+  - ## 👉 [Click Here](https://orange.great-site.net/)
+  - ## 👉 [Buy Now](https://orange.great-site.net/)
 
 ## 2. Choose the Amount of Diamonds
 After reaching the top-up website or using the app, you'll be asked to select how many Diamonds you'd like to purchase. The more Diamonds you buy, the better value you get in terms of bonus Diamonds.
